@@ -3,7 +3,8 @@
 Mr. T-touch Pattaravarodom 1*, Miss Jantrarat Jun-a-nun 1, 
 Miss Chaweewan Arunthaworn 1**, Miss Sunisa Kongkalai, and Mr.Somyote Noipailom
 
-1 Princess Chulabhorn Science High School Pathum Thani 51 M.6 Bhorngurn Ladlumkaou  
+1 Princess Chulabhorn Science High School Pathum Thani, 
+51 M.6 Bhorngurn Ladlumkaou  
 Pathum Thani
 
 E-mail: p.t.touch7610@gmail.com*, ajvee_math@hotmail.com**
