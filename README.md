@@ -27,3 +27,5 @@ the most of music that is a big change of alpha wave is Moonlight Sonata.
 
 Keywords: music chords, the pattern of trigonometric, relaxation and brain wave
 ```
+
+This Project is a Final High School Year Project at Princess Chulabhorn Science High School Pathum Thani
